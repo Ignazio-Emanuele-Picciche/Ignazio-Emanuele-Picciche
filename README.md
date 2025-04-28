@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working as Data Scientist and Big Data Engineer
+- 🔭 I’m currently working as a Data Scientist and Big Data Engineer
 - 🌱 I’m studying Master's Degree in Intelligent System Engineering at Campus Bio Medico University of Rome
   
 I am very determined, flexible, optimistic and curious. Through my previous experiences I am able to face and resolve problems of various kinds with determination. I can work in a team putting others at ease and respecting their spaces for action. Also I am able to work in stressful situations, organizing work effectively.I am very determined, flexible, optimistic and curious. Through my previous experiences I am able to face and resolve problems of various kinds with determination. I can work in a team putting others at ease and respecting their spaces for action. Also I am able to work in stressful situations, organizing work effectively.
